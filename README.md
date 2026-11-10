@@ -13,17 +13,6 @@ Use whatever seasonings sound good to you.
 
 * Have a bunch in the pantry.
 
-### How Much Seasoning?
-
-There is no exact science here.
-
-For 2 pounds of meat:
-
-- Start with about 2 to 3 scoops using the biggest tablespoon tool we have on the counter of each seasoning you want to use.
-- Also will depend on how many seasonings you add.
-
-Going to have to wing it and do what you think is right since there is no science be hind it.
-
 ---
 
 # Tools Needed
@@ -39,6 +28,8 @@ Going to have to wing it and do what you think is right since there is no scienc
 ---
 
 # Freezing Instructions
+
+Probably will not need the freezing and thawing instructions due to the expiration date of the chicken (10/16/2026 I believe), but I will leave them here anyways.
 
 ## Freezing Ground Turkey or Ground Chicken
 
@@ -116,7 +107,7 @@ You only need enough spray to lightly coat the bottom.
 
 ## Step 3: Add the Meat
 
-1. Put on gloves if desired.
+1. Put on gloves from the pantry.
 2. Remove the meat from the package.
 3. Place the meat into the pot.
 
@@ -124,11 +115,15 @@ You only need enough spray to lightly coat the bottom.
 
 ## Step 4: Season the Meat
 
-Add your chosen seasonings directly onto the meat.
+### How Much Seasoning?
 
-### Suggestions
+There is no exact science here.
 
-- Add seasoning as directed from above statement.
+For 2 pounds of meat:
+
+- Start with about 2 to 3 scoops per seasoning you wish to add using the biggest tablespoon tool we have on the counter of each seasoning you want to use.
+
+Going to have to wing it and do what you think is right since there is no science be hind it.
 
 ### Add Lime Juice
 
@@ -190,6 +185,10 @@ Once the meat is fully cooked:
 
 1. Pour in 1–1½ cups of chicken broth.
 
+Odds are you might just need 1 cup.  Use what is in the fridge first. Got another box in the pantry.
+
+Once new broth is opened it will have to be put in the fridge.
+
 ### Why?
 
 The broth helps:
@@ -229,6 +228,7 @@ Add:
 
 - 1 bag or 2 bags.
 - Depends on what you want.
+- I got two bags of the stir fry and squash. You can mix and match.
 
 ### Optional
 
